@@ -1,1 +1,0 @@
-# ExamAlgorithmization_YamkovoiVladislav
